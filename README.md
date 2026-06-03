@@ -5,6 +5,6 @@
 - 💞️ I’m looking to collaborate on anything souvereign cloud related
 - 📫 How to reach me [LinkedIn]([https://reijn.dev](https://www.linkedin.com/in/ronaldhensbergen/))
 - 🤔 I’m looking for help with building my Open Source Data Stack
-- 💬 Ask me about ...
+- 💬 Interested in philosophy
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm loving Bike hiking, playing (board) games and puzzles!
